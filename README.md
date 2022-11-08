@@ -1,0 +1,2 @@
+# Tepkime Denklestirme
+ Kimya
